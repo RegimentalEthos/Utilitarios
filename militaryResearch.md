@@ -60,6 +60,9 @@ Many Canadians served in the First World War, 1914 to 1918. Different types of r
 [First World War (1914-1918)](https://www.canada.ca/en/services/defence/caf/militaryhistory/wars-operations/wwi.html)
 Canada’s role in the First World War (WW1). Timelines, remembrance and archival records, as well as the people who fought. 
 
+**Foruns**
+
+[CEF Research Group](https://cefresearch.ca/) - We are a group of enthusiasts with an interest in the Canadian Expeditionary Force (CEF) and its role in the First World War. The interests here are broad: Family History/Genealogy, Military History, Weapons/Equipment, Tactics, Militaria Collecting, etc.
 
 **Outras fontes**
 
